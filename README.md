@@ -1,13 +1,13 @@
 # `♦️HATSUNE-MIKU-ULTRA💥`
 
 ### `🏓DUDAS SOBRE EL BOT?, CONTACTANOS🍁`
-<a href="http://wa.me/5212412377467" target="blank"><img src="https://img.shields.io/badge/OFC-YOVANI_CREADOR-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+<a href="http://wa.me/51943058441" target="blank"><img src="https://img.shields.io/badge/OFC-YOVANI_CREADOR-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 <a href="http://wa.me/5212411233838" target="blank"><img src="https://img.shields.io/badge/OFC-YOVANI_CREADOR-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 
 
 ### `⛄GRUPO DE INFORMACIÓN DEL BOT Y ACTUALIZACIONES🧿`
 
-<a href= "https://chat.whatsapp.com/Jhs2WrdiNzY3CML7shPwot" target="blank"><img src="https://img.shields.io/badge/GRUPO_DE_SOPORTE-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+<a href= "https://chat.whatsapp.com/G5ugch9uSkfE42w1POPc6h" target="blank"><img src="https://img.shields.io/badge/GRUPO_DE_SOPORTE-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 </a>
 > LOS NUMEROS NO SON BOTS Y EN EL GRUPO NO SE PERMITEN NUMEROS-BOTS
 
